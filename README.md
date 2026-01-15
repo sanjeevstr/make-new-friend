@@ -1,1 +1,1 @@
-# A Fun freindly code for your freind and who you want to make your freind. ❤️
+# A Fun freindly code for you, whose you want to make your freind. ❤️
